@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning the basics
 - 🌱 I’m currently learning how to ask questions on the to the github community
 - 💞️ I will let you know if i need any help with anything in the near future 
-- 📫 How to reach me ... 
+- 📫 How to reach me ... start a discussion?! (not sure yet)
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I am thinking on it...
 
